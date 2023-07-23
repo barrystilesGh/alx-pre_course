@@ -1,1 +1,1 @@
-I am abiut to do awesome stuff
+I am about to do some awesome stuff
